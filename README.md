@@ -1,6 +1,6 @@
 # BSE-23S-076--blog
 
-![My Profile Picture]n.[https://pbs.twimg.com/media/FqyhssWXoAEyQAx?format=jpg&name=large](https://pbs.twimg.com/media/FqyhssWXoAEyQAx?format=jpg&name=large)
+![My Profile Picture]n.https://pbs.twimg.com/media/FqyhssWXoAEyQAx?format=jpg&name=large
 
 ## About Me
 
