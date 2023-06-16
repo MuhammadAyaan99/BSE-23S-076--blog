@@ -1,6 +1,6 @@
 # BSE-23S-076--blog
 
-![My Profile Picture](https://cdn.discordapp.com/attachments/945794750626267247/1116780796984954930/IMG20230422065510_00.jpg)
+![My Profile Picture]n.https://pbs.twimg.com/media/FqyhssWXoAEyQAx?format=jpg&name=large
 
 ## About Me
 
